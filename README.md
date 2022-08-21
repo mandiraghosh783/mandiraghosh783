@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mandiraghosh783
 - 👀 I’m interested in web designing
-- 🌱 I’m currently a first year undergrad
+- 🌱 I’m currently a second year undergrad
 
 
 
